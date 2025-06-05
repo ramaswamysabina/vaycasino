@@ -1,4 +1,4 @@
-# 🌟 Vay Casino — Modern ve Güvenli Bir Online Casino Deneyimi
+# 🌟 Vay Casino Türkiye ile Her An Kazanma Fırsatı
 
 **Vay Casino**, klasik eğlenceleri modern teknolojiyle buluşturan, her kullanıcının kendi zevkine uygun seçenekler bulabileceği bir platformdur. Kullanıcı dostu arayüz, popüler oyun çeşitliliği ve güvenliğe verdiğimiz önem ile öne çıkıyoruz.
 
